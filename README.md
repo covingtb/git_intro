@@ -1,1 +1,2 @@
-Eric Ianni
+Brenden Covington
+covingtb@oregonstate.edu
